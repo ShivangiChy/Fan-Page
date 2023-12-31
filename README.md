@@ -1,1 +1,1 @@
-Created a Fan Page on my favourite writer Ruskin Bond.
+I have created a Fan Page for my favorite writer Ruskin Bond.
